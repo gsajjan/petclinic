@@ -2,8 +2,4 @@ ghgdjhgsjhjhds
 jhbgkhkjhjkhdkjsah
 kjhdkjhdaskfjhksdjfh
 kajghjksdgkfjdsghfk
-lkhsdkjhfskjhsfk
-hasdiuhauiBHIUBHEDI
-IUYESDUAGUIEWRIWEGTE
-kjasghdjkhgajkfhkadjh
-dsjlkhfjkdsahfjksadhkfjh
+stygethhrhgdhghjgkjdsfgkjsdfh
